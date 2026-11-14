@@ -9,4 +9,4 @@
 > pt: dncopy strictly. int ok, public chat pref.
 > ask for c+h
 
-[atabook](https://hongsault.atabook.org) [strawpage](https://cane-office.straw.page)
+[atabook](https://hongsault.atabook.org) · [strawpage](https://cane-office.straw.page) · [prns.page](https://en.pronouns.page/@utopiashot)
