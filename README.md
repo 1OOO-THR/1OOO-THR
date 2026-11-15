@@ -1,10 +1,9 @@
 ![](https://file.garden/ZoyrYtJ8Swks2a6W/Untitled278_20261114190127.png)
 --
-> **ire . axel / adversary** — *he/him* 🎴 agender unlabeled  ;;  sys . 8w9 sp874   
-> basic html + rlua knowledge   
+<small>**ire . axel / adversary** — **14** . *he/him* 🎴 agender unlabeled  ;;  sys . 8w9 sp874   </small>
 
-> projmoon , die of death , frozen soul      
-> 17776 , ultrakill , dandys
+<small>projmoon , die of death , frozen soul </small>     
+<small>17776 , ultrakill , dandys</small>
 
 > pt: dncopy strictly. int ok, public chat pref.
 > ask for c+h
